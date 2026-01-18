@@ -40,6 +40,6 @@ https://policies.google.com/privacy
 ## 7. お問い合わせ
 本ポリシーに関するお問い合わせは、以下までご連絡ください。
 
-連絡先メールアドレス：support@example.com
+連絡先メールアドレス：ryusakamakijob@gmail.com
 
-制定日：2026年○月○日
+制定日：2026年1月18日
